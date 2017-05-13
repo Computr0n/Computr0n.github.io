@@ -1,2 +1,2 @@
-# [3dvlad.com](https://3dvlad.com)
+# [3dvlad.com](http://3dvlad.com)
 # [Computr0n.github.io](https://computr0n.github.io/)
